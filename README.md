@@ -13,7 +13,7 @@
  
  <br>
  
- ###pra me conhecer melhor acesse minhas redes sociais !
+ pra me conhecer melhor acesse minhas redes sociais !
 
 <div> 
  
